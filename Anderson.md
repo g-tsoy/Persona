@@ -1,0 +1,1 @@
+# **Bibi Anderson** played the main role in movie **Persona**
